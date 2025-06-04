@@ -51,7 +51,7 @@ I’m actively looking for opportunities and collaborations in:
 ## 📫 Let’s Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/manish-kumar-996949182/) 
-- 📬 [mail] (manishkumar7544426@gmail.com)
+- 📬 [mail](manishkumar7544426@gmail.com)
 
 ---
 
